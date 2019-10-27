@@ -1,1 +1,0 @@
-# Vikipediyayazykovprogrammirovaniya.github.io
